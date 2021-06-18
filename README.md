@@ -11,7 +11,7 @@
 
  ## Onde me encontrar? :mag:  
  
-[![Linkedin Badge](https://img.shields.io/badge/-Jeniffer Campos-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/jeniffer-campos/)](https://www.linkedin.com/in/jeniffer-campos-187738157/) 
+[![Linkedin Badge](https://img.shields.io/badge/-Jeniffer-Campos-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/jeniffer-campos/)](https://www.linkedin.com/in/jeniffer-campos-187738157/) 
 [![Gmail Badge](https://img.shields.io/badge/-jeniffercampos1912@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:jeniffercampos1912@gmail.com)](mailto:jeniffercampos1912@gmail.com)
 
 ---
