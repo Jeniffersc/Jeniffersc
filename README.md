@@ -1,6 +1,6 @@
 ### Seja bem vinde! ❤️
 
-🏊‍♀️ Apaixonada por esportes, principalmente natação e futebol, criança, aninmais e chocolate.
+🏊‍♀️ Apaixonada por esportes, principalmente natação e futebol, criança, animais e chocolate.
 
 👧🏿 Nascida em Jequié na Bahia e criada em São Paulo, meu grande objetivo é contribuir para um mundo melhor, podem me chamar de Jeni e tenho 20 anos. 
 
